@@ -1,6 +1,7 @@
 # [Sylvia] <img src="https://i.pinimg.com/originals/12/ab/ba/12abba12c99a296bcfc43d60285cc58d.gif">
 
-Eu sou <strong>Sylvia</strong>, <strong>formada em letras, em transição de carreira e me jogando nessa aventura que é a tecnologia da informação!</strong> 🚀🪐
+Oi!
+Me chamo <strong>Sylvia</strong>, <strong>uma profissional de letras em transição de carreira, explorando esse grande universo que é a tecnologia da informação!</strong> 🚀🪐
 
 <div align="center">
 
