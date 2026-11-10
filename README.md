@@ -1,6 +1,6 @@
-# [Sylvia] <img src="https://media1.tenor.com/m/Wyjcf1uN1AoAAAAd/cat-zoning-out-cat-stare.gif">
+# [Sylvia] <img src="https://i.pinimg.com/originals/b9/64/1d/b9641df629f6db83bd9dff98d55ddccd.gif">
 
-Eu sou <strong>Sylvia</strong>, <strong>formada em letras, em transição de carreira e me jogando nessa aventura que é a tecnologia da informação! ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖</strong> 👨🏻‍💻 
+Eu sou <strong>Sylvia</strong>, <strong>formada em letras, em transição de carreira e me jogando nessa aventura que é a tecnologia da informação!</strong> 🚀🪐
 
 <div align="center">
 
