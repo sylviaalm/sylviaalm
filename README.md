@@ -1,4 +1,4 @@
-# [Sylvia] <img src="https://i.pinimg.com/originals/b9/64/1d/b9641df629f6db83bd9dff98d55ddccd.gif">
+# [Sylvia] <img src="https://i.pinimg.com/originals/12/ab/ba/12abba12c99a296bcfc43d60285cc58d.gif">
 
 Eu sou <strong>Sylvia</strong>, <strong>formada em letras, em transição de carreira e me jogando nessa aventura que é a tecnologia da informação!</strong> 🚀🪐
 
