@@ -2,10 +2,6 @@
 
 Eu sou <strong>Sylvia</strong>, <strong>formada em letras, em transição de carreira e me jogando nessa aventura que é a tecnologia da informação</strong> 👨🏻‍💻 
 
-- 🚀 Atualmente estou aprendendo: <strong>Análise e desenvolvimento de sistemas na Estácio Recife</strong> 
-- 💬 Pergunte-me sobre: <strong>Ourivesaria, bordado em bastidor e cerâmica fria</strong>
-- 📣 Nós podemos falar em: <strong>Português</strong>
-
 <div align="center">
 
   <a href="#" alt="Gmail">
